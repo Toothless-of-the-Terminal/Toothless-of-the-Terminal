@@ -6,12 +6,12 @@
 
 ## Hello :wave:
 
-*I'm a new coder that loves python, HTML5/javascript/CSS, Java, and Scratch. I also Love JS Paint.*
+*I'm a new coder that loves python, HTML5/JavaScript/CSS, Java, and Scratch. I also Love JS Paint.*
 
 Pronouns: **He/Him 🥸**
 
 Loves: *~~LIFE~~* **Silly Things** :trollface:
 
-###### **Notice; misuse of any code by me is the fault of the person whom cheated/used the code in an inappropriate manor*
+###### **Notice; misuse of any code by me is the fault of the person whom cheated/used the code in an irresponsible manor*
 
 </div>
