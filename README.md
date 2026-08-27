@@ -12,4 +12,6 @@ Pronouns: **He/Him 🥸**
 
 Loves: *~~LIFE~~* **Silly Things** :trollface:
 
+###### **Notice; misuse of any code by me is the fault of the person whom cheated/used the code in an inappropriate manor*
+
 </div>
