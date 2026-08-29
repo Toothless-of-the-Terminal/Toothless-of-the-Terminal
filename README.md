@@ -6,7 +6,7 @@
 
 ## Hello :wave:
 
-*I'm a new coder that loves python, HTML5/JavaScript/CSS, Java, and Scratch. I also Love JS Paint.*
+*I'm a new coder that loves python, HTML5/JavaScript/CSS, Java, Ruby, and Scratch. I also Love JS Paint.*
 
 Pronouns: **He/Him 🥸**
 
